@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **Steven.ayoub.362@my.csun.edu**
 
-- ⚡ Fun fact **I like turtles.**
+- ⚡ Fun fact **I'm a coffee addict ☕️.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
